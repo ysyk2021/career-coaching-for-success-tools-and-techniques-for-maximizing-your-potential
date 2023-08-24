@@ -1,5 +1,3 @@
-Definition and Characteristics of Career Coaching
-===========================================================================================================
 
 In this chapter, we will explore the benefits of career coaching and define what career coaching is. We will also discuss the characteristics of a successful career coach.
 

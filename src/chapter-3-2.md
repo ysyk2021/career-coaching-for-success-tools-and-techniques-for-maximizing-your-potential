@@ -1,5 +1,3 @@
-Addressing Mental Health and Well-being
-=====================================================================================================
 
 The psychology of career development and coaching is complex and multifaceted, and encompasses a wide range of factors that can impact an individual's mental health and well-being. In this chapter, we will explore the importance of addressing mental health and well-being in career coaching, and provide guidance for coaches working with clients who may be struggling with these issues.
 

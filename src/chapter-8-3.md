@@ -1,5 +1,3 @@
-Addressing Potential Risks and Consequences of Career Coaching
-====================================================================================================================
 
 Career coaching is a powerful tool for helping individuals achieve their career goals and maximize their potential. However, it is important for coaches to be aware of the potential risks and consequences of career coaching, and to adhere to ethical standards that protect clients and ensure fair and transparent practices. In this chapter, we will explore ethical considerations in career coaching and provide guidance for addressing potential risks and consequences.
 

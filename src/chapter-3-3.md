@@ -1,5 +1,3 @@
-Techniques for Developing Career Skills and Competencies through Coaching
-=======================================================================================================================================
 
 Developing career skills and competencies is a key aspect of effective career coaching. In this chapter, we will explore techniques for developing these skills and competencies, including identifying strengths and weaknesses, setting achievable goals, and providing ongoing support and feedback.
 

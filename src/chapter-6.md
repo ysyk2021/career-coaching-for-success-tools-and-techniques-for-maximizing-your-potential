@@ -1,5 +1,3 @@
-Chapter 6: Measuring Success in Career Coaching
-===============================================
 
 In this chapter, we will explore how to measure success in career coaching. We will discuss key performance indicators (KPIs) for measuring success and qualitative and quantitative methods for evaluation.
 

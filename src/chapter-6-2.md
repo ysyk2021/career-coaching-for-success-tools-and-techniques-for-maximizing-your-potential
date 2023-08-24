@@ -1,5 +1,3 @@
-Qualitative and Quantitative Methods for Evaluation
-====================================================================================================
 
 Measuring success in career coaching is crucial to assessing progress and identifying areas of improvement. In this chapter, we will explore qualitative and quantitative methods for evaluating the success of career coaching.
 

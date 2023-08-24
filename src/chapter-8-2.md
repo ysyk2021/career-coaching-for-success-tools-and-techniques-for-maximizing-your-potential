@@ -1,5 +1,3 @@
-Balancing Individual and Organizational Interests
-=======================================================================================================
 
 Career coaching involves a delicate balance between the interests of the individual client and those of their organization. In this chapter, we will explore the ethical considerations that career coaches must keep in mind as they navigate this balance.
 

@@ -1,5 +1,3 @@
-Goal-Setting and Action Planning
-===============================================================================================
 
 Goal-setting and action planning are essential tools for achieving success in your career. In this chapter, we will explore techniques for setting effective goals, breaking them down into actionable steps, and tracking progress over time.
 

@@ -1,5 +1,3 @@
-Chapter 3: The Psychology of Career Development and Coaching
-============================================================
 
 The psychology of career development and coaching is a complex and multifaceted field that encompasses a wide range of factors, including personal strengths and goals, mental health and well-being, and techniques for developing career skills and competencies. In this chapter, we will explore these topics in more detail.
 

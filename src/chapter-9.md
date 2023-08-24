@@ -1,5 +1,3 @@
-Chapter 9: Future Trends in Career Coaching
-===========================================
 
 As the field of career coaching continues to evolve, it is important to stay up-to-date on emerging technologies and innovations, as well as predictions for the future of career coaching.
 

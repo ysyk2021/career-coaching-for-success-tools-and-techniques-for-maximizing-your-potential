@@ -1,5 +1,3 @@
-Common Myths about Career Coaching
-============================================================================================
 
 In this chapter, we will explore common myths about career coaching. We will discuss these myths and provide a reality check to help you understand how career coaching can benefit your career.
 

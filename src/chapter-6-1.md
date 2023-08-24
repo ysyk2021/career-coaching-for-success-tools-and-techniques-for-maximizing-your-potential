@@ -1,5 +1,3 @@
-Key Performance Indicators (KPIs) for Measuring Success
-========================================================================================================
 
 Measuring success in career coaching is essential for both the coach and the client. It helps to assess progress, identify areas of improvement, and adjust strategies as needed. In this chapter, we will explore key performance indicators (KPIs) for measuring success in career coaching.
 

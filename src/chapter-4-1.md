@@ -1,5 +1,3 @@
-Identifying and Assessing Client Needs
-============================================================================================
 
 Identifying and assessing client needs is an essential component of successful career coaching. In this chapter, we will explore techniques for identifying and assessing client needs, including conducting a needs assessment, using effective questioning techniques, and establishing clear goals and objectives.
 

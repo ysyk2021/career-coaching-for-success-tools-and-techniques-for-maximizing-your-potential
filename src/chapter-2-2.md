@@ -1,5 +1,3 @@
-The Benefits of Working with a Career Coach
-=====================================================================================================
 
 In this chapter, we will explore the benefits of working with a career coach. We will discuss how a career coach can help you clarify your goals, identify your strengths and areas for improvement, and develop a personalized plan for achieving success in your career.
 

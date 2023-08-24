@@ -1,5 +1,3 @@
-Creating Effective Coaching Plans and Strategies
-======================================================================================================
 
 Creating effective coaching plans and strategies is essential for ensuring successful career coaching outcomes. In this chapter, we will explore techniques for developing coaching plans and strategies that align with client goals and needs, and support long-term career success.
 

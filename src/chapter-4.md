@@ -1,5 +1,3 @@
-Chapter 4: Strategies for Successful Career Coaching
-====================================================
 
 Successful career coaching requires a combination of skills and techniques, including identifying and assessing client needs, building rapport and trust with clients, and creating effective coaching plans and strategies.
 

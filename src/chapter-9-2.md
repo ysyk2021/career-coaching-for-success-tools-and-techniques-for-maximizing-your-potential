@@ -1,5 +1,3 @@
-Predictions for the Future of Career Coaching
-==========================================================================================
 
 The world of work is constantly evolving, and career coaching must adapt to keep up with these changes. In this chapter, we will explore some future trends in career coaching and make predictions about what the future holds for this dynamic field.
 

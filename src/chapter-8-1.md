@@ -1,5 +1,3 @@
-Understanding Ethical Guidelines and Standards
-====================================================================================================
 
 In this chapter, we will explore the ethical considerations involved in career coaching. We will discuss the importance of ethical guidelines and standards for career coaches and provide an overview of these guidelines.
 

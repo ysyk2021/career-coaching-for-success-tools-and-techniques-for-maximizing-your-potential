@@ -1,5 +1,3 @@
-Emerging Technologies and Innovations in the Field
-===============================================================================================
 
 As technology continues to advance, career coaching is evolving to keep up with the changing needs of clients. In this chapter, we will explore some emerging technologies and innovations in the field of career coaching.
 

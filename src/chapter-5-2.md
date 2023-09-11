@@ -1,5 +1,4 @@
-Chapter 5: Time Management and Productivity Techniques
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical skills of time management and productivity within the context of career coaching. Effective time management and productivity techniques are essential for achieving career success, and career coaches play a pivotal role in helping individuals develop and implement these skills.
 

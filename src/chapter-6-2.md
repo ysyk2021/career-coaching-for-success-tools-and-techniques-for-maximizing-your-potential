@@ -1,5 +1,4 @@
-Chapter 6: Qualitative and Quantitative Methods for Evaluation
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential tools and techniques for evaluating your career coaching journey using both qualitative and quantitative methods. Effective evaluation is key to maximizing your potential and ensuring that your career coaching efforts are on the right track. By combining qualitative insights with quantitative data, you can gain a comprehensive understanding of your progress and make informed decisions about your career development.
 

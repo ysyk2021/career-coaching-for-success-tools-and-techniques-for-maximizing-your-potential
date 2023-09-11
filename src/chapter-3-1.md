@@ -1,5 +1,4 @@
-Chapter 9: Identifying Personal Strengths and Goals
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical process of identifying personal strengths and goals within the context of career coaching. Understanding your unique strengths and setting clear, meaningful goals are foundational steps towards maximizing your potential and achieving career success.
 

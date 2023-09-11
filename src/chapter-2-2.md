@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Working with a Career Coach
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous advantages of partnering with a career coach. Understanding these benefits can help individuals make an informed decision about investing in career coaching to maximize their potential and achieve professional success.
 

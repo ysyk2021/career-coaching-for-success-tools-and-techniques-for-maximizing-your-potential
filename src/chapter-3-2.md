@@ -1,5 +1,4 @@
-Chapter 8: Addressing Mental Health and Well-Being
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial topic of addressing mental health and well-being within the context of career coaching. A focus on mental health is essential for maximizing one's potential and achieving long-term career success.
 

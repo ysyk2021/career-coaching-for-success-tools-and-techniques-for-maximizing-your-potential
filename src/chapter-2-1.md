@@ -1,5 +1,4 @@
-Chapter 1: Definition and Characteristics of Career Coaching
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the fundamental concepts that define career coaching and the key characteristics that distinguish it as a valuable tool for maximizing one's potential and achieving success in the professional world.
 

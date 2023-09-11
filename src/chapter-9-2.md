@@ -1,5 +1,4 @@
-Chapter 11: Predictions for the Future of Career Coaching
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will gaze into the crystal ball and explore some exciting predictions for the future of career coaching. As technology, society, and work environments continue to evolve, career coaching will undoubtedly undergo transformative changes.
 

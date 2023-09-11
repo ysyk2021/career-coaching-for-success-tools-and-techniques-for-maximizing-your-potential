@@ -1,5 +1,4 @@
-Chapter 12: Balancing Individual and Organizational Interests
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the delicate yet essential art of balancing individual and organizational interests in the context of career coaching. Achieving harmony between personal career aspirations and the goals of an organization is a critical factor for both individual success and the overall health of the workplace.
 

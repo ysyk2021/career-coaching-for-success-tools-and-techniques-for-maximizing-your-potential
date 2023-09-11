@@ -1,5 +1,4 @@
-Chapter 7: Key Performance Indicators (KPIs) for Measuring Success
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical concept of Key Performance Indicators (KPIs) in the context of career coaching. KPIs are essential tools for measuring the effectiveness of your coaching efforts and assessing the progress and success of your clients. Whether you are a career coach or someone receiving coaching, understanding and defining relevant KPIs can help you maximize your potential and track your journey towards achieving your career goals.
 

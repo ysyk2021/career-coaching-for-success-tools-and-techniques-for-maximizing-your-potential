@@ -1,5 +1,4 @@
-Chapter 2: Common Myths About Career Coaching
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will debunk some of the most common myths and misconceptions surrounding career coaching. Understanding the realities of career coaching is essential for individuals looking to make informed decisions about their professional development and maximize their potential.
 

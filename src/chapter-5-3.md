@@ -1,5 +1,4 @@
-Chapter 4: Communication and Interpersonal Skills Development
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical area of communication and interpersonal skills development within the context of career coaching. Effective communication and strong interpersonal skills are essential for professional success, and career coaches play a vital role in helping individuals sharpen and refine these skills.
 

@@ -1,5 +1,4 @@
-Chapter 6: Goal-Setting and Action Planning
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential components of goal-setting and action planning within the context of career coaching. Setting clear, achievable goals and creating actionable plans are key strategies for maximizing your potential and achieving career success.
 

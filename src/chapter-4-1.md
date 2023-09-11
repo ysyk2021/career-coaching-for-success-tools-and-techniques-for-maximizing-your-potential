@@ -1,5 +1,4 @@
-Chapter 3: Identifying and Assessing Client Needs
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial process of identifying and assessing the unique needs of your clients in the context of career coaching. Understanding your clients' needs is the foundation upon which effective coaching strategies are built. Whether you are a career coach looking to empower individuals or someone seeking career guidance, this chapter will provide valuable insights into the methods and techniques for discerning and evaluating client needs.
 

@@ -1,5 +1,4 @@
-Chapter 10: Emerging Technologies and Innovations in the Field
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the exciting world of emerging technologies and innovations within the field of career coaching. Staying up-to-date with the latest advancements is crucial for career coaches and individuals seeking to maximize their potential in an ever-evolving professional landscape.
 

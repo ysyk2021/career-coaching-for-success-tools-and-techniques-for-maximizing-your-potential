@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Developing Career Skills and Competencies through Coaching
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the techniques employed in career coaching to help individuals develop and enhance their career skills and competencies. Career coaching is a powerful tool for honing the abilities and attributes necessary for success in today's dynamic professional landscape.
 

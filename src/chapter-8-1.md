@@ -1,5 +1,4 @@
-Chapter 14: Understanding Ethical Guidelines and Standards
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical topic of ethical guidelines and standards within the field of career coaching. Ethical conduct is the foundation upon which successful and responsible career coaching practices are built. It ensures that coaches maintain the highest standards of professionalism and prioritize their clients' best interests.
 

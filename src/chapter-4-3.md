@@ -1,5 +1,4 @@
-Chapter 8: Creating Effective Coaching Plans and Strategies
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the art and science of crafting effective coaching plans and strategies in the context of career coaching. A well-designed coaching plan is essential for guiding clients towards their career goals and maximizing their potential. Whether you are a career coach or someone receiving coaching, understanding how to create and implement these plans is crucial for achieving success in your professional journey.
 
